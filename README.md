@@ -1,2 +1,0 @@
-# anano-chikhladze
-პროექტის აღწერა
